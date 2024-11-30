@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **srijeetkarmakarnhs2@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1xlSCVIW5xIdGPBiV9KoIeehJgO_-EcWo/edit?usp=drive_link&ouid=103315425452238343497&rtpof=true&sd=true](https://docs.google.com/document/d/1xlSCVIW5xIdGPBiV9KoIeehJgO_-EcWo/edit?usp=drive_link&ouid=103315425452238343497&rtpof=true&sd=true)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1xlSCVIW5xIdGPBiV9KoIeehJgO_-EcWo/edit?usp=drive_link&ouid=103315425452238343497&rtpof=true&sd=true](https://drive.google.com/file/d/1aC0qI10yJk1gaxcrlTkA53aBZrQ0-2yx/view?usp=drivesdk)
 
 - ⚡ Fun fact **I code like a wizard, turning ideas into digital magic!**
 
